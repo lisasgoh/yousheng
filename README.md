@@ -1,3 +1,3 @@
 # yousheng
 
-is hot
+cal is gr8 & ys is hot
