@@ -1,4 +1,3 @@
 # yousheng
 
-no u
-cal is gr8 but not ys
+cal is gr8 & ys is hot
